@@ -1,0 +1,1 @@
+# bymagadan.github.io
